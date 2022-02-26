@@ -1,0 +1,2 @@
+# fzi
+jangan sangean blok
